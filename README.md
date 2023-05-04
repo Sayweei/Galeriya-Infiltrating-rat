@@ -1,1 +1,0 @@
-# Galeriya-Infiltrating-rat
